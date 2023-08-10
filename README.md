@@ -1,5 +1,4 @@
-I’m looking for a job 
-📫  hanceanic@gmail.com
+
 
 <!--- - 👋 Hi, I’m @hanceanic
 - 👀 I’m interested in ...
